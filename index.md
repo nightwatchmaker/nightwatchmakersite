@@ -7,6 +7,8 @@ You can buy chicken nuggets //@vroblock
 
 Howdy! //@mightydjinn
 
+Mightdjinn smells //@SoftlyStratus
+
 https://www.newgrounds.com/audio/listen/584131 //@Fracty1324
 
 https://www.youtube.com/watch?v=xBlK83dunZc&t=3s //@Fracty1324
