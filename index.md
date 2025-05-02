@@ -10,3 +10,5 @@ Howdy! //@mightydjinn
 https://www.newgrounds.com/audio/listen/584131 //@Fracty1324
 
 https://www.youtube.com/watch?v=xBlK83dunZc&t=3s //@Fracty1324
+
+POV: 2010 roblox tycoon https://www.youtube.com/watch?v=TN_8D-79BZg //@Fracty1324
